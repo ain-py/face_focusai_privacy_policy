@@ -43,4 +43,4 @@ We may update our Privacy Policy from time to time. We will notify you of any ch
 
 ## 7. Contact Us
 
-If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at [Insert Your Contact Email Here].
+If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at mdnoor20202@gmail.com.
